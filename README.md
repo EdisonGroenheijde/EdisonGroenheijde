@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EdisonGroenheijde
-- 👀 I’m interested in creating and hopefully coding wii satisfy me
+- 👀 I’m interested in creating and hopefully coding will satisfy my needs
 - 🌱 I’m currently learning hoow to code
 - 💞️ I’m looking to collaborate on peoples projects
 - 📫 How to reach me EdsionGroenheijde@gmail.com or @EdisonGroenheijde in Discord
